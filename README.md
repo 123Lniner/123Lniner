@@ -7,8 +7,7 @@
 - ⚡ Fun fact: You can find me on Roblox (123L_niner), Besiege (lriver1), or Fortnite (lriver123).
 
 <!---
-123Lniner/123Lniner is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
+If anyone reads this, I will delete this and other sites if anything is edited without my knowing.
 --->
 
 
