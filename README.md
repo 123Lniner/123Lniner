@@ -494,9 +494,6 @@ If anyone reads this, I will delete this and other sites if anything is edited w
 
 
 
-
-
-
 <!---
 Still scrolling? Maybe you need to touch grass...
 --->
