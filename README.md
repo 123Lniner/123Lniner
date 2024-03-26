@@ -6,10 +6,11 @@
 - 😄 Pronouns: He, him
 - ⚡ Fun fact: You can find me on Roblox (123L_niner), Besiege (lriver1), or Fortnite (lriver123).
 
+Please don't open the main page in a new tab, rather, open it in this tab because there is a button that will be useless if opened in a new tab.
+
 <!---
 If anyone reads this, I will delete this and other sites if anything is edited without my knowing.
 --->
-
 
 
 
