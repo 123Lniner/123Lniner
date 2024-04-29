@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any space-related games (as long as it's either JavaScript or HTML).
 - 📫 Unfortunately, I'd rather not show my contact information.
 - 😄 Pronouns: He, him
-- ⚡ Fun fact: You can find me on Roblox (123L_niner), Besiege (lriver1), or Fortnite (lriver123).
+- ⚡ Fun fact: You can find me on Roblox (123L_niner), Steam (lriver1), or Fortnite (lriver123).
 
 Please don't open the main page in a new tab, rather, open it in this tab because there is a button that will be useless if opened in a new tab.
 
